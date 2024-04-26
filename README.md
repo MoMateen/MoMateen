@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mateen
-- 👀 I’m interested in appraisal
+- 👀 I’m interested in learning Dots
 - 🌱 I’m currently learning Dots
 - 💞️ I’m looking to collaborate on Dots
 - 📫 How to reach me : Just Don't
